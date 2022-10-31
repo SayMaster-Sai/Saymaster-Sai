@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 😄 Hi, I'm Sai
+- :video_game:: I'm very interested in game
+- 📫 I'm currently learning css
+- ⚡ Wanna play games reach me
+- 💬 How to reach me? Just dm me on instagram @saymaster_sai 
